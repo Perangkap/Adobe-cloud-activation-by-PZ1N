@@ -1,0 +1,1 @@
+# Adobe-cloud-activation-by-PZ1N
